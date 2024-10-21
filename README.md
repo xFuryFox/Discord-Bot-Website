@@ -17,4 +17,4 @@ Twitch Yayınları: https://twitch.com/xfuryfox<br>
 Github: https://github.com/xfuryfox<br>
 Instagram: https://instagram.com/adamsalahx<br>
 Twitter: https://twitter.com/xfuryfox<br>
-TikTok: https://www.tiktok.com/@1furyfox
+TikTok: https://www.tiktok.com/@adamsalahx
